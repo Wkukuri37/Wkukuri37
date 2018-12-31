@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## 重度中二病患者？？？
 
 You can use the [editor on GitHub](https://github.com/Wkukuri37/Wkukuri37/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
